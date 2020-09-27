@@ -1,10 +1,10 @@
 ---
-sort: 2
+sort: 4
 ---
 
-Bismillahir rahmanir raheem...
+# What is this project?
 
-## What is this project?
+Bismillahir rahmanir raheem...
 
 This project is to be considered an effort from every believer who subscribes to Islam and considers it a duty to raise the Word of Allah SWT.
 
