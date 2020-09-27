@@ -2,6 +2,6 @@
 sort: 1
 ---
 
-# Introduction to MUP
+# Introduction
 
 {% include list.liquid %}
