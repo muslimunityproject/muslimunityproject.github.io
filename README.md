@@ -5,11 +5,11 @@
 
 وَاعْتَصِمُوا بِحَبْلِ اللَّهِ جَمِيعًا وَلَا تَفَرَّقُوا ۚ وَاذْكُرُوا نِعْمَتَ اللَّهِ عَلَيْكُمْ إِذْ كُنتُمْ أَعْدَاءً فَأَلَّفَ بَيْنَ قُلُوبِكُمْ فَأَصْبَحْتُم بِنِعْمَتِهِ إِخْوَانًا وَكُنتُمْ عَلَىٰ شَفَا حُفْرَةٍ مِّنَ النَّارِ فَأَنقَذَكُم مِّنْهَا ۗ كَذَٰلِكَ يُبَيِّنُ اللَّهُ لَكُمْ آيَاتِهِ لَعَلَّكُمْ تَهْتَدُونَ - 3:103
 
-<em>"And hold firmly to the rope of Allah all together and do not become divided. And remember the favor of Allah upon you - when you were enemies and He brought your hearts together and you became, by His favor, brothers. And you were on the edge of a pit of the Fire, and He saved you from it. Thus does Allah make clear to you His verses that you may be guided." (Al-Imran:102)</em>
+*"And hold firmly to the rope of Allah all together and do not become divided. And remember the favor of Allah upon you - when you were enemies and He brought your hearts together and you became, by His favor, brothers. And you were on the edge of a pit of the Fire, and He saved you from it. Thus does Allah make clear to you His verses that you may be guided." (Al-Imran:102)*
 
 وَلْتَكُن مِّنكُمْ أُمَّةٌ يَدْعُونَ إِلَى الْخَيْرِ وَيَأْمُرُونَ بِالْمَعْرُوفِ وَيَنْهَوْنَ عَنِ الْمُنكَرِ ۚ وَأُولَٰئِكَ هُمُ الْمُفْلِحُونَ - 3:104
 
-<em>"And let there be [arising] from you a nation inviting to [all that is] good, enjoining what is right and forbidding what is wrong, and those will be the successful." (Al-Imran:103)</em>
+*"And let there be [arising] from you a nation inviting to [all that is] good, enjoining what is right and forbidding what is wrong, and those will be the successful." (Al-Imran:103)*
 
 
 Every Muslim should desire khilafah
@@ -20,11 +20,12 @@ Every Muslim, as long as they subscribe to the sound aqeedah, and regardless of 
 
 Every Muslim, even if they are engaged in other activities, or works with a group/jamaah/harakat/hizb, or works for an islamic cause, can and should work for k
 
-The Muslim world is reeling from one disaster to another disaster, from one trial to another tribulation. From the official abolishment of the Khilafah in 1924 to the Zionist occupation of Al Quds, to the relentess wars in Iraq, Afghanistan, Syria, Yemen and in many more lands in recent history, there no doubt amongst Muslims that what we lack is unity.
 
-The Muslim world lacks unity in many respects - unity in thought, unity of purpose, unity in action. Divisions amongst us are exploited and amplified by those who wish to see the Muslims disunited, and Muslims need to take matters into their own hands now and work for unity dilligently, utilising means santioned by the Sharia, and then trusting in Allah SWT to bring about the victory in the form of unity.
+The Muslim world is reeling from one disaster to another disaster, from one trial to another tribulation. From the official abolishment of the Khilafah in 1924 to the Zionist occupation of Al Quds, to the relentess wars in Iraq, Afghanistan, Syria, Yemen (and countless others in recent history), there no abating in the tyranny and oppression that has befallen the Muslim ummah. However there is little doubt amongst Muslims that what we are lacking in order to address our situation is **unity**.
 
-The work for unity amongst Muslims ultimately leading to unity under a Khilafah has to a collective effort. It requires collective efforts and resources, and it cannot and must not be impeded by differences or inhibitions or dislikes amongst each other as the objective is too great, the stakes are too high. Too many Muslims and Muslim groups allow trivial differences to come in between each other, and instead of working together for common objectives, they find themselves working against each others efforts. leading to their efforts becoming exhausted and ineffective.
+The Muslim world lacks unity in many respects - unity in thought, unity of purpose, unity in action. Divisions amongst us are exploited and amplified by those who wish to see Muslims disunited, and Muslims must now take matters into their own hands now and work for unity dilligently, utilising means santioned by the Sharia, and then trusting and praying to Allah SWT to bring about the victory in the form of unity.
+
+The work for unity amongst Muslims ultimately leading to unity under a Khilafah has to a collective effort. It requires collective efforts and resources, and it cannot and must not be impeded by differences or inhibitions or dislikes amongst each other as the objective is too great, the stakes are too high. Too many Muslims and Muslim groups allow differences to come in between each other, and instead of working together for common objectives, they find themselves working against each others efforts, leading to all their efforts becoming exhausted and ineffective as a result.
 
 E.g leaving a hizb/jamaah/harkat should not result in inactivity and inability to continue working as part of a collective effort
 
