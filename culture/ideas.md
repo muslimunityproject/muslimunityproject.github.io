@@ -230,3 +230,18 @@ extremism
 facsim
 
 brexit and immigration
+
+
+The trick of the "terrorism"
+
+Khilafah method for unity
+
+Isis not a khilafah
+
+Afghanistan and khilafah
+
+Turkey and Osmanli
+
+Pakistan and khilafah
+
+Is Islam more than the khilafah?
