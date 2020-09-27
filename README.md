@@ -11,6 +11,7 @@
 
 "And let there be [arising] from you a nation inviting to [all that is] good, enjoining what is right and forbidding what is wrong, and those will be the successful." (Al-Imran:103)
 
+
 Every Muslim should desire khilafah
 
 Every Muslim has obligation and right to work for khilafah, of course following prophetic method
@@ -19,7 +20,13 @@ Every Muslim, as long as they subscribe to the sound aqeedah, and regardless of 
 
 Every Muslim, even if they are engaged in other activities, or works with a group/jamaah/harakat/hizb, or works for an islamic cause, can and should work for k
 
-The work for khilafah is a collective effort, it requires collective efforts and resources, and it cannot and must not be impeded by differences or inhibitions or dislikes as the objective is too great, the stakes too high. E.g leaving a hizb/jamaah/harkat should not result in inactivity and inability to continue working as part of a collective effort
+The Muslim world is reeling from one disaster to another disaster, from one trial to another tribulation. From the official abolishment of the Khilafah in 1924 to the Zionist occupation of Al Quds, to the relentess wars in Iraq, Afghanistan, Syria, Yemen and in many more lands in recent history, there no doubt amongst Muslims that what we lack is unity.
+
+The Muslim world lacks unity in many respects - unity in thought, unity of purpose, unity in action. Divisions amongst us are exploited and amplified by those who wish to see the Muslims disunited, and Muslims need to take matters into their own hands now and work for unity dilligently, utilising means santioned by the Sharia, and then trusting in Allah SWT to bring about the victory in the form of unity.
+
+The work for unity amongst Muslims ultimately leading to unity under a Khilafah has to a collective effort. It requires collective efforts and resources, and it cannot and must not be impeded by differences or inhibitions or dislikes amongst each other as the objective is too great, the stakes are too high. Too many Muslims and Muslim groups allow trivial differences to come in between each other, and instead of working together for common objectives, they find themselves working against each others efforts. leading to their efforts becoming exhausted and ineffective.
+
+E.g leaving a hizb/jamaah/harkat should not result in inactivity and inability to continue working as part of a collective effort
 
 The victory will come to where it is deserved and no one knows who or where this may be, and so no one can claim exclusivity or invite deservability to themselves
 
