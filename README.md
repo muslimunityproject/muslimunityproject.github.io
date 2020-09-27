@@ -1,5 +1,7 @@
 
-# Overview
+# Muslim Unity Project (MUP)
+
+## Overview
 
 Every Muslim should desire khilafah
 
@@ -110,19 +112,3 @@ heavy and frank accounting but with hikma and wisdom and akhlaq
 unison in global work, differences in regional and local work
 
 mup is a unity project, and working with it is a recommended action for the purpoises of co-ordinating and unifying islamic ideas, culture, objectives. the amir of the mup does not possess any physical authority as he is not a khalifah with subjects. however that is an aim we are strving towards
-
-
-
-## site.pages
-
-| source | link |
-| ------ | ---- |
-{% for page in site.pages -%}
-|{{ page.path }}|[{{ page.url | relative_url }}]({{ page.url | relative_url }})|
-{% endfor %}
-
-## Documents
-https://jekyll-rtd-theme.rundocs.io
-
-## License
-The theme is available as open source under the terms of the [MIT License](https://github.com/rundocs/jekyll-rtd-theme/blob/master/LICENSE)
