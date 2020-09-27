@@ -1,16 +1,15 @@
 
 # Topics
 
-general topics:
 thinking in society
 purpose of life
 proof of creator
 need for messengers
 proof/miracles of quran
-- linguistic
-- scientific
-- astrnomical
-- knowledge/predictions
+  linguistic
+  scientific
+  astrnomical
+  knowledge/predictions
 
 islam as a complete system
 problem with evolution
