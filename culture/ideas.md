@@ -1,4 +1,6 @@
 
+# Topics
+
 general topics:
 thinking in society
 purpose of life
@@ -9,6 +11,7 @@ proof/miracles of quran
 - scientific
 - astrnomical
 - knowledge/predictions
+
 islam as a complete system
 problem with evolution
 grand design in the universe

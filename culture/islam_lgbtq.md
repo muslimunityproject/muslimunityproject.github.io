@@ -1,4 +1,6 @@
 
+# Example Islam & LGBT
+
 Western society today promotes LGBTQ relationships as perfectly normal and wants Muslim and other non Western countries to adopt the same values.
 
 The first question that must be asked is what or who defines what is and what isn't acceptable relationships between men and women, men and men, women and women and so on.
