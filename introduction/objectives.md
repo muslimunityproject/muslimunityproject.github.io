@@ -26,4 +26,6 @@ This is a movement for change, a movement to raise the word of Allah SWT the big
 
 unison in global work, differences in regional and local work
 
-Dawa is to the world, to both Muslims and non Muslims. Prioritisation of who to target, what to discuss, where to work is to be decided in consultation. However disagreement over objectives and strategy should not result in detachment. Rather if you can convince others of your views or ideas then get elected and proceed as far as you can go. But retain attachment to the jamaah for the sake of unity and momentum
+Dawa is to the world, to both Muslims and non Muslims. Prioritisation of who to target, what to discuss, where to work is to be decided in consultation.
+
+Disagreement over objectives and strategy should not result in detachment. Rather if you can convince others of your views or ideas then get elected and proceed as far as you can go. But retain attachment to the project for the sake of unity and momentum

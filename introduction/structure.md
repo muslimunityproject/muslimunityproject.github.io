@@ -1,8 +1,8 @@
 ---
-sort: 3
+sort: 4
 ---
 
-# Project Structure
+# Structure
 
 Two structures
 

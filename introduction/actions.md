@@ -1,8 +1,8 @@
 ---
-sort: 2
+sort: 3
 ---
 
-# What is the method?
+# Actions
 
 The method refers to the manner in which this project proceeds and explains how and why it will aim to do certain things.
 
