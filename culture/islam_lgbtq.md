@@ -32,9 +32,15 @@ education dept agendas
 islam promotes marriage
 
 hadith on LGBTQ
+
 hadith on effeminate
+
 sharia and punishments
+
 treatment and incitement
+
 story of lut
+
 hijrahs and asexual children - choice when balikh
+
 condition of khalifah
