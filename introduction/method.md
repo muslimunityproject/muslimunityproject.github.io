@@ -18,3 +18,8 @@ The method of the Prophet SAW can be summarised into the following:
 Additionally after the dealth of the Prophet SAW the Sahabah engaged in:
 
 5. Accounting the state and the Ameer
+
+
+Private halaqah, public dawa, seeking nussrah
+
+Seeking the nussrah is done in a sincere way, giving naseehah, inviting nussrah to obey Allah SWT and this messenger
