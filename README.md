@@ -3,6 +3,8 @@
 
 ## Overview
 
+Bismillahir rahmanir raheem...
+
 وَاعْتَصِمُوا بِحَبْلِ اللَّهِ جَمِيعًا وَلَا تَفَرَّقُوا ۚ وَاذْكُرُوا نِعْمَتَ اللَّهِ عَلَيْكُمْ إِذْ كُنتُمْ أَعْدَاءً فَأَلَّفَ بَيْنَ قُلُوبِكُمْ فَأَصْبَحْتُم بِنِعْمَتِهِ إِخْوَانًا وَكُنتُمْ عَلَىٰ شَفَا حُفْرَةٍ مِّنَ النَّارِ فَأَنقَذَكُم مِّنْهَا ۗ كَذَٰلِكَ يُبَيِّنُ اللَّهُ لَكُمْ آيَاتِهِ لَعَلَّكُمْ تَهْتَدُونَ - 3:103
 
 *"And hold firmly to the rope of Allah all together and do not become divided. And remember the favor of Allah upon you - when you were enemies and He brought your hearts together and you became, by His favor, brothers. And you were on the edge of a pit of the Fire, and He saved you from it. Thus does Allah make clear to you His verses that you may be guided." (Al-Imran:102)*
@@ -12,7 +14,6 @@
 *"And let there be [arising] from you a nation inviting to [all that is] good, enjoining what is right and forbidding what is wrong, and those will be the successful." (Al-Imran:103)*
 
 
-Bismillahir rahmanir raheem...
 
 The Muslim world is reeling from one disaster to another disaster, from one trial to another tribulation. From the official abolishment of the Khilafah in 1924 to the Zionist occupation of Al Quds, to the relentess wars in Iraq, Afghanistan, Syria, Yemen (and countless others in recent history), there no abating in the tyranny and oppression that has befallen the Muslim ummah. However there is little doubt amongst Muslims that what we are lacking in order to address our situation is **unity**.
 
