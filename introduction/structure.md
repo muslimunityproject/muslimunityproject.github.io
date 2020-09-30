@@ -15,7 +15,7 @@ There is no compulsion, there are no oaths, all efforts and work are purely volu
 If someone wants to leave due to no longer agreeing with the direction of the project or the ideas or the work, that is upto them and we wish them all success in their lives.
 
 
-Two structures
+Two structures may emerge (this as with everything is subject to change/improvement):
 
 1. Scholarship - unifying on general principles, setting general objectives of the dawa, deciding on what to adopt and what not to adopt. All adoptions will be based on collective agreement with the majority vote. Whilst we recognise in Islam that the minority opinion may ultimately be the correct ijtihad, the council of ulema will take adoptions correctively as the notion of collective agreement is well established.
 
@@ -33,3 +33,18 @@ Limited term leadership roles
 Leadership is elected
 No money is managed centrally, all activities self funded
 Detachment from physical actions, charity, political campaigns
+
+
+### How will the project structure emerge?
+
+From the ground up...
+
+5 from London => elect a London Amir
+5 from Luton => elect a Luton Amir
+5 from Birmingham => elect a Birmingham Amir
+5 from Manchester => elect a Manchester Amir
+5 from Wales => elect a Wales Amir
+
+These 5 form the national UK committee and elect an Amir for the UK
+
+Similarly Amirs emerge from numerous countries, e.g. US, Australia, Germany, 

@@ -15,7 +15,7 @@ Bismillahir rahmanir raheem...
 
 
 
-The Muslim world is reeling from one disaster to another disaster, from one trial to another tribulation. From the official abolishment of the Khilafah in 1924 to the Zionist occupation of Al Quds, to the relentess wars in Iraq, Afghanistan, Syria, Yemen (and countless others in recent history), there no abating in the tyranny and oppression that has befallen the Muslim ummah. However there is little doubt amongst Muslims that what we are lacking in order to address our situation is **unity**.
+The Muslim world is reeling from one disaster to another disaster, from one trial to another tribulation. From the official abolishment of the Khilafah in 1924 to the Zionist occupation of Al Quds, to the relentess wars in Iraq, Afghanistan, Syria, Yemen (and countless others in recent history), there no abating in the tyranny and oppression that has befallen the Muslim ummah. However there is little doubt amongst Muslims that what we are lacking in order to address our situation is **unity**, and unity can only be achieved when we overcome the obstacles against unity.
 
 The Muslim world lacks unity in many respects - unity in thought, unity of purpose, unity in action. Divisions amongst us are exploited and amplified by those who wish to see Muslims disunited, and Muslims must now take matters into their own hands now and work for unity dilligently, utilising means santioned by the Sharia, and then trusting and praying to Allah SWT to bring about the victory in the form of unity.
 
@@ -27,13 +27,13 @@ This is not a sect, nor a madhab, nor a political party, not a secretive organis
 
 It should be considered a project, where any and everyone can contribute their efforts and ideas, and be stakeholders in what direction it takes and how it operates.
 
-It is not a secular project, nor a political project, but rather it is an Islamic project as the aim is an Islamic aim to restore unity amongst Muslims at every level possible.
+It is not a secular project, nor a political project, but rather it is an Islamic project as the aim is an Islamic aim to restore unity amongst Muslims at every level possible, and this includes at a cultural level as well as at a political level.
 
 Many Muslims are skeptical of various groups and movements currently present in the ummah. This skeptiscisim is justified in many cases, but similarly not justified in many cases. There is good and bad, and there are different opinions on who is good and who is bad, and this project aims to get past these issues onto a more general position, where there is unity on core issues, and where differences are minimised.
 
-This is a project that emanats from the ummah, is comprised of people from the ummah, both simple Muslims as well as experienced daees and scholars, all united on core issues which are agreed upon, with ideas and objectives that are continously being improved and polished.
+This is a project that emanates from the ummah, is comprised of people from the ummah, both simple Muslims as well as experienced daees and scholars, all united on core issues which are agreed upon, with ideas and objectives that are continously being improved and polished.
 
-The aim is to achieve the type of unity expected from Islam, and the path that will be taken will be shaped by all who participate in the project, with a continous improvment process that will sharpen the aims and facilitate the actions and activities that are collectivly agreed upon.
+The aim is to achieve the type of unity expected from Islam, and the path that will be taken will be shaped by all who participate in the project, with a continous improvement process that will sharpen the aims and facilitate the actions and activities that are collectivly agreed upon.
 
 All culture is subject to continous examination and improvements, with the most knowledgeable from across the ummah stepping forward to come together for the common objectives, constantly purifying and sharpening the ideas & culture.
 
